@@ -1,3 +1,3 @@
 # Wallpapers
 
-Collection of all wallpapers found from various sources
+Cllection of all wallpapers found from various sources
